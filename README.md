@@ -1,1 +1,1 @@
-# politica-privacidade-mystoreday
+# Políticas | MyStoreDay
